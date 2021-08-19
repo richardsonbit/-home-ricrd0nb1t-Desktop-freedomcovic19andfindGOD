@@ -1,0 +1,1 @@
+# -home-ricrd0nb1t-Desktop-freedomcovic19andfindGOD
